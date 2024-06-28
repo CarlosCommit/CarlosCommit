@@ -19,5 +19,3 @@ En la actualidad, trabajo como desarrollador backend de forma remota, creando so
 ### 🌍 Encuéntrame en Línea:
 📧 Correo Electrónico: carlosfernado21334@gmail.com
 
-🔗 LinkedIn: https://www.linkedin.com/in/carlos-fernando-mamani-798a57292/
-
